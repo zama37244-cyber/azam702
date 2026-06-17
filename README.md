@@ -21,8 +21,8 @@ https://www.dropbox.com/scl/fi/wupoqju41ovtul6vuef5v/change_ground_grip_angelo23
 
 
 
-دوج تجاليد 
-https://www.dropbox.com/scl/fo/sdmv45yn97ona2if9y4pq/AGNLMZ2pyHcTvZrqg3Sbegs?rlkey=uj8quvzjvif3159b2uu4tjo1t&st=42yujjt5&dl
+دوج تجاليدhttps://www.dropbox.com/scl/fo/sdmv45yn97ona2if9y4pq/AGNLMZ2pyHcTvZrqg3Sbegs?rlkey=uj8quvzjvif3159b2uu4tjo1t&st=42yujjt5&dl 
+
 بطه😂
 
 
