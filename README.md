@@ -49,5 +49,17 @@ SShttps://www.dropbox.com/scl/fi/8n5h4ml33v8nh1gms1xc6/Caprice_SS_2013_KHwylD.zi
 
 https://cdn.discordapp.com/attachments/1463798627666231441/1466936333527417069/Al_Jaradiah_Riyadh.zip?ex=6a33d4ac&is=6a32832c&hm=f8a9ea66af8ed7b450a3660e945453c7dfcb6ba9db78e09e0c1644a033d75c4b&
 
+كامري 2018 تجاليد m7
+
+https://modsfire.com/Jl0V23C9B4Z8DUb
+
+كورلا تاج m7
+
+https://modsfire.com/fjlZBhL7btTJKC4
 
 
+
+كابرس 2016 ss m7 
+
+
+https://modsfire.com/20py72ibsVDoJqQ
