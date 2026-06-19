@@ -76,5 +76,5 @@ https://www.mediafire.com/file/y23057apkw39593/L5FI_Altima_2010-1.zip/file
 
 
 
-لكزز خويلد https://www.mediafire.com/file/owtqhj2sla2pnn5/LX570_2017_KHwylD.zip/file
+لكزز خويلدhttps://www.mediafire.com/file/ohuvkgip0mrac86/LX570_2017_KHwylD-3.zip/file 
 اغلب المودات يمكن تكون خربانه فا بنسويلها تحديث جديد 
