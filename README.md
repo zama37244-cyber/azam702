@@ -21,8 +21,8 @@ https://www.dropbox.com/scl/fi/wupoqju41ovtul6vuef5v/change_ground_grip_angelo23
 
 
 
-دوج تجاليدhttps://www.dropbox.com/scl/fo/sdmv45yn97ona2if9y4pq/AGNLMZ2pyHcTvZrqg3Sbegs?rlkey=uj8quvzjvif3159b2uu4tjo1t&st=42yujjt5&dl 
-
+دوج 
+تجاليدhttps://www.mediafire.com/file/5kb7dexzyy0vnz3/M7_CHARGER13.zip/file
 بطه😂
 
 
@@ -67,25 +67,6 @@ https://modsfire.com/20py72ibsVDoJqQ
 
 
 
-التيما 2009 https://www.dropbox.com/scl/fi/vftl3xmgkl6yfl1lcjb9h/L5FI_Altima_2010.zip?rlkey=1zeu3wvztz3155ws51ntojzg2&st=hagshzg2&dl=0
+التيما 2009 
 
-
-
-التيما 2020 (اتوقع ) https://www.dropbox.com/scl/fi/ahe870z4mzh4xfb98t1da/_dark.zip?rlkey=r2uhnx6an6dwsog1tmd25xk8p&st=h2lsfmkr&dl=0
-
-
-
-كياhttps://modsfire.com/PC32gB5mhxeArXy 
-
-
-
-لكزز 2017https://www.dropbox.com/scl/fi/ceou965tiar711dzparte/LX570_2017_KHwylD.zip?rlkey=17ftpms98ejnij4bxyrgn3c9n&st=dyvln0ej&dl=0
-
-
-
-مايباخ قراند 😂 https://modsfire.com/CI212vdopuXZp9i
-
-
-
-
-كروز قراند https://www.dropbox.com/scl/fi/ly5sfw3tx30hrc5precba/surge_lost.zip?rlkey=yjre4g3vo8hfr787r5b3iqy0r&st=kycoxdn5&dl=0
+https://www.mediafire.com/file/y23057apkw39593/L5FI_Altima_2010-1.zip/file
